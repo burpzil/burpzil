@@ -4,5 +4,5 @@ esse arvoredo, que é tanto, tamanho, tão basto e de tantas prumagens, que home
   </p>
 </p>
 <p align="right">
-  <img width="60" height="70" src="https://files.catbox.moe/8okdd4.png">
+  <img width="60" height="70" src="https://files.catbox.moe/eudy83.png">
 </p>
